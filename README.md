@@ -13,5 +13,5 @@ gordniss@gmail.com
 @gordniss_
 
 
-![](https://tenor.com/pt-BR/view/yuumi-cat-cat-jam-yuumijam-3d-gif-26083923)
+![](https://media.tenor.com/cgiP2AOrxaQAAAAj/yuumi-cat.gif)
 
