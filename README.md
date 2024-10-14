@@ -10,7 +10,7 @@ Meu nome é Vinicius Menzio
 
 gordniss@gmail.com
 
-@gordniss_
+[@gordniss_](https://www.instagram.com/gordniss_)
 
 
 ![](https://media.tenor.com/cgiP2AOrxaQAAAAj/yuumi-cat.gif)
