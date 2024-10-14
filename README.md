@@ -6,7 +6,7 @@ Meu nome é Vinicius Menzio
 - Estou aprendendo sobre Javascript/programar nele;
 - Utilizarei esse local para compartilhar meus projetos na Alura.
 
-### Você entrar em contato comigo 📫
+### Você pode entrar em contato comigo 📫
 
 gordniss@gmail.com
 @gordniss_
